@@ -1,1 +1,2 @@
-This is site is under mentainance
+This site is under Maintenance
+
